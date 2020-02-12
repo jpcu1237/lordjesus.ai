@@ -14,6 +14,8 @@ Even this method requires thorough self-exploration in advance, but its reaction
 
 One can't just go on analyzing such lines. Examining these thought <i>can</i> explain where they came from, for example, that we got such messages from our parents. But knowing how they came about doesn't dissolve the thoughts. Here it helps to join Evagrius in a search through Scripture for lines that disarm and dispel such negative life scripts.
 
+C.J. Jung believes that we have two poles in us; fear and trust, aggression and love, weakness and power. But we often get fixated on one pole, for example, on fear. In that case fear continually expresses itself in thoughts such as, 'I can't do it. I'm afraid. What do others think about me? I'm making a fool of myself.'
+
 
 
 
