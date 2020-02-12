@@ -12,6 +12,9 @@ The antirrhetic method requires that we first observe our thoughts precisely, th
 
 Even this method requires thorough self-exploration in advance, but its reaction to the thoughts is different. Here we don't engage in any dialogue with them. We don't ask what they wish to say to us, what pwoer they contain; instead we oppose them with something. This method is always the right one when we sense that the thoughts are useless, that they aren't leading us on the path to life but only want to stop us from getting there. Above all this is an appropriate path to take when the thoughts keep recurring, when they have turned into a sort of script for life, as described by transactional analysis. This psychological school believes that many people are just living out their script in life. One young woman learned from therapy that her life script was, 'All men are murderers.' Obviously there is no way to live well with this sort of script. Another typical script says, 'I am a failure, a loser, things always go wrong with me; I'll never blossom.'
 
+One can't just go on analyzing such lines. Examining these thought <i>can</i> explain where they came from, for example, that we got such messages from our parents. But knowing how they came about doesn't dissolve the thoughts. Here it helps to join Evagrius in a search through Scripture for lines that disarm and dispel such negative life scripts.
+
+
 
 
 
