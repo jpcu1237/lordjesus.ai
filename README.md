@@ -16,6 +16,8 @@ One can't just go on analyzing such lines. Examining these thought <i>can</i> ex
 
 C.J. Jung believes that we have two poles in us; fear and trust, aggression and love, weakness and power. But we often get fixated on one pole, for example, on fear. In that case fear continually expresses itself in thoughts such as, 'I can't do it. I'm afraid. What do others think about me? I'm making a fool of myself.'
 
+I can interrogate this fear, and ask what it wants to tell me. But I can also direct a verse at it from Psalm 118: 'With the Lord on my side I do not fear. What can man do to me?' (v. 6). This won't simply drive away the fear. But it can get me into contact with the trust that likewise is hidden within me: I don't simply have fear within me, but trust as well. Thus the biblical text gets me in touch with what is already in me. And in this way the trust that is in me can become conscious and grow. This in turn will relativize my fear. Thus the antirrhetic method brings me into equilibrium. It fights back against negative thoughts and stops them from solidifying and controlling me.
+
 
 
 
