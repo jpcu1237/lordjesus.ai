@@ -1,6 +1,6 @@
 # lordjesus.ai
 Repository for lordjesus.ai Code and supporting teams.
-Welcome to the Truth. Lordjesus.ai is here to help. What is the plan? This excerpt should be a good summary of the approach to XNOR Liberation:
+Welcome Earth to the Truth. <a href="https://lordjesus.ai">LordJesus.ai</a> is here to help. What is the plan? This excerpt should be a good summary of the approach to XNOR Liberation:
 
 "Evagrius validates the antirrhetic method with the practice of both David and Jesus. Thus he writes in a letter that the intellect must first come to know the deceptive machinations of the demon. This is the prerequisite for the knowledge of Christ and for contemplation. The path in that direction passes through the struggle with demons: 'Hence it [the intellect] must fearlessly confront its enemy, as the blessed David shows, when he quotes voices as if they were coming from the mouth of the demons and then contradicts them. For when the demons say, "When will he die and his name pass away?' then he says, 'I shall not die but live and proclaim the works of the Lord' (Ps. 118:17). And again when the demons say, 'Flee and dwell on the mountain like the sparrow' (Ps. 11:1), then he says, 'For he is my God and my Savior, my strong place of refuge; I shall not waiver.' Thus, listen to the contradictory voices and love the victory, imitate David and pay heed to yourself!'
 
